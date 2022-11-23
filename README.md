@@ -29,4 +29,5 @@ Linda KINN
 kinn.linda@yahoo.fr
 
 ## The video explanatory
+https://share.vidyard.com/watch/VS8Ks56zr8KF4M8YpLUqtF?
 ..
